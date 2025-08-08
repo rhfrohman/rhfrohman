@@ -17,8 +17,6 @@ A multidisciplinary designer passionate about crafting intuitive and impactful d
 
 ## 📫 Let's stay in touch!
 - [Portfolio](https://rhfrohman3.com)
-- [Schedule a Meet](https://rhfrohman3.com)
-- [CCS:MFA UX](https://rhfrohman3.com)
 - [Cults3d](https://cults3d.com/en/users/rhfrohman3)
 
 ---
