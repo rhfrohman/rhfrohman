@@ -20,4 +20,4 @@ A multidisciplinary designer passionate about crafting intuitive and impactful d
 - [Cults3d](https://cults3d.com/en/users/rhfrohman3)
 
 ---
-© 2025 Roland Frohman III. All Rights Reserved.
+© 2026 Roland Frohman III. All Rights Reserved.
